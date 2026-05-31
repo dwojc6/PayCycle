@@ -38,4 +38,4 @@ This policy may be updated as PayCycle changes. The updated date at the top of t
 
 ## Contact
 
-For privacy questions, contact: [privacy@example.com](mailto:privacy@example.com)
+For privacy questions, contact: [privacy@example.com](dwojc6@gmail.com)
